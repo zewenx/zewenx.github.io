@@ -25,6 +25,7 @@
 ### Establish a standalone infrastructure business unit to drive performance and provide future optionality post the nbn rollout
 
 ### Greatly simplify our structure and ways of working to empower our people and serve our customers
+[Simplify structure](https://www.telstra.com.au/aboutus/media/media-releases/New-organisational-structure-and-leadership-team-for-Telstra)
 
 ### Industry leading cost reduction program and portfolio management
 
